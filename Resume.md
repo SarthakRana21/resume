@@ -1,6 +1,6 @@
 # Sarthak Rana
 [sarthak.rana0321@gmail.com](mailto:sarthak.rana0321@gmail.com) | +91 8630185390  
-[GitHub](https://github.com/yourusername) | [LinkedIn](https://www.linkedin.com/in/yourprofile)
+[GitHub](https://github.com/SarthakRana21) | [LinkedIn](https://www.linkedin.com/in/sarthak-rana-64b277215/)
 
 ---
 
